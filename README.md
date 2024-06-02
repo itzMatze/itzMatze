@@ -1,4 +1,4 @@
-# 👋🏼 Hi, I'm Matze!
+# 👋🏼 Hi, I'm Matze! 🔆
 
 ### I love coding, especially if it is something about graphics and colorful light 🦄
 
